@@ -1,1 +1,2 @@
-# B2107119
+xin chào! 
+Mình là Ngô Lê Trúc Quỳnh
